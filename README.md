@@ -31,6 +31,6 @@ I am passionate about creating high-performance applications and constantly lear
 
 ## Contact
 
-Feel free to reach out to me via [email](xumoyunelmurodov1@gmail.com) or connect with me on [Phone Number](+998 93 295 61 05).
+Feel free to reach out to me via [email](xumoyunelmurodov1@gmail.com) or connect with me on Phone Number: (+998 93 295 61 05).
 
 Thank you for visiting my profile!
